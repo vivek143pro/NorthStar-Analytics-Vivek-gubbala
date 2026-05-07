@@ -1,1 +1,0 @@
-# NorthStar-Analytics-Vivek-gubbala
